@@ -7,7 +7,7 @@ Baloo, a sloth bear, is the strict teacher of the cubs of the Seeonee wolf pack.
 
 * good-natured guardian
 * always wants to help
-* always hungry
+* is always hungry
 * loves singing and dancing
 * massages himself on palm trunks
-* loves sleeping und relaxing
+* loves sleeping and relaxing

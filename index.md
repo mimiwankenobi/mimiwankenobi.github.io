@@ -18,3 +18,5 @@ Baloo and Bagheera, a panther, save Mowgli from Shere Khan the tiger, and endeav
 > Look for the bare necessities.
 > The simple bare necessities.
 > Forget about your worries and your strife.
+
+<img src="https://mandalynndavis.files.wordpress.com/2012/05/scan0007.jpg"/>

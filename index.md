@@ -11,3 +11,9 @@ Baloo, a sloth bear, is the strict teacher of the cubs of the Seeonee wolf pack.
 * loves singing and dancing
 * massages himself on palm trunks
 * loves sleeping and relaxing
+
+## Baloo's philosophy of life
+
+> Look for the bare necessities.
+> The simple bare necessities.
+> Forget about your worries and your strife.

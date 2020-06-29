@@ -12,3 +12,9 @@ Baloo and Bagheera, a panther, save Mowgli from Shere Khan the tiger, and endeav
 * loves singing and dancing
 * massages himself on palm trunks
 * loves sleeping and relaxing
+
+## Baloo's philosophy of life
+
+> Look for the bare necessities.
+> The simple bare necessities.
+> Forget about your worries and your strife.
